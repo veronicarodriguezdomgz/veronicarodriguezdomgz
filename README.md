@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Veronica
-- 📫 How to reach me: @veronica.rodriguez.domgz@gmail.com
+- 📫 How to reach me: veronica.rodriguez.domgz@gmail.com
 - 😄 Pronouns: She/Her
